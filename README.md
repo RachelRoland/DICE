@@ -1,1 +1,3 @@
-# Rachel-Roland-
+# Rachel Roland
+Student, Wife, Mom 
+DICE @ SU 
